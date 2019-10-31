@@ -1,6 +1,6 @@
 # Code of Conduct
 
-All members must abide by the code of conduct when playing in CCGL events, interacting with other members, or representing the league in any fashion on any medium, including but not limited to social media (both publicly and privately visible), print, television, and radio. 
+All members must abide by the code of conduct when playing in CCGL events, interacting with other members in any league capacity, or representing the league in any fashion on any medium, including but not limited to social media (both publicly and privately visible), print, television, and radio. 
 
 ### We Don't Tolerate Harrassment
 
